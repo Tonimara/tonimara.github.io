@@ -1,1 +1,1 @@
-# Einige Informationen zu Woody Allen
+# Einige weitere Informationen zu Woody Allen
