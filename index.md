@@ -13,5 +13,4 @@ Woody Allan seid:
 > kid, you play. You have no responsibilities, you become a baby until you are born. And then you spend your
 > last 9 months floating in luxurious spa-like conditions with central heating and room service on tap, larger
 > quarters every day and then Voila! You finish off as an orgasm!
-
-src="https://d2gg9evh47fn9z.cloudfront.net/800px_COLOURBOX3504115.jpg"
+<img src="https://d2gg9evh47fn9z.cloudfront.net/800px_COLOURBOX3504115.jpg'"/>
